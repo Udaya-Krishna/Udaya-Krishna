@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Udaya-Krishna
+- 👋 Hi, I’m Udaya Krishna
 - 👀 I’m interested in science and development.
 - 💞️ I’m looking to collaborate on anything that has the potential to improve human lives.
 - 📫 How to reach me 
